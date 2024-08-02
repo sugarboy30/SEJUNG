@@ -1,1 +1,1 @@
-# SEJUNG-
+# SEJUNG-Contest
